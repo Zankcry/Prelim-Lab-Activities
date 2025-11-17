@@ -1,2 +1,1 @@
 
-![](Innocent.gif)
